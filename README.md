@@ -1,0 +1,1 @@
+# power6-v6_pro_2gb
